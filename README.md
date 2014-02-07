@@ -1,96 +1,85 @@
-radical
-=======
-<p style="text-align: center;"><a href="http://www.radiko.com.br/wp-content/uploads/2013/03/agroecologia.png"><img class="aligncenter size-medium wp-image-378" alt="agroecologia" src="http://www.radiko.com.br/wp-content/uploads/2013/03/agroecologia-300x231.png" width="300" height="231" /></a><a href="http://www.radiko.com.br/wp-content/uploads/2013/03/agroecologia.jpg"><img class="aligncenter size-full wp-image-379" alt="agroecologia" src="http://www.radiko.com.br/wp-content/uploads/2013/03/agroecologia.jpg" width="849" height="312" /></a></p>
+<p style="text-align: center;"><a href="http://www.radiko.com.br/wp-content/uploads/2013/03/ecopedago.jpg"><img class="aligncenter size-medium wp-image-392" alt="ecopedago" src="http://www.radiko.com.br/wp-content/uploads/2013/03/ecopedago-300x257.jpg" width="300" height="257" /></a></p>
+<p style="text-align: center;"><a href="http://www.radiko.com.br/wp-content/uploads/2013/03/ecopedagogia.jpg"><img class="aligncenter size-full wp-image-391" alt="ecopedagogia" src="http://www.radiko.com.br/wp-content/uploads/2013/03/ecopedagogia.jpg" width="849" height="312" /></a></p>
 &nbsp;
 
-<strong>  Referências para começar sua horta urbana, ou saber como encontrar produtos orgânicos:</strong>
-
 &nbsp;
-
-<a href="http://www.ikebanaflores.com.br/blog/category/campanha-ikebana-flores/" target="_blank">http://www.ikebanaflores.com.br/blog/category/campanha-ikebana-flores/</a> - Campanha Plante uma Árvore de preservação da Serra do Gandarela
-
-&nbsp;
-
-<a href="http://www.contraosagrotoxicos.org/">http://www.contraosagrotoxicos.org/</a> - campanha permanente contra os agrotóxicos (Nacional)
-
-&nbsp;
-
-<a href="http://www.plantingjustice.org/">http://www.plantingjustice.org/</a> - ONG intenacional
-
-&nbsp;
-
-<a href="http://www.guerrillagardening.org/">http://www.GuerrillaGardening.org/</a> - movimento internacional de jardinagem de guerrilha
-
-&nbsp;
-
-<a href="http://www.pimpyourpavement.com/">http://www.pimpyourpavement.com/</a> - sobre bombas de sementes e mais intervenções
-
-&nbsp;
-
-<a href="http://www.escolaverde.univasf.edu.br/">http://www.escolaverde.univasf.edu.br/</a> - projeto social em escola
-
-&nbsp;
-
-<a href="http://urbanhomesteadingnovice.tumblr.com/">http://urbanhomesteadingnovice.tumblr.com/</a> - blog narrando jornada permacultural
-
-&nbsp;
-
-<a href="http://agricultoresdesofa.blogspot.com.br/">http://agricultoresdesofa.blogspot.com.br/</a> - movimento urbano /rural em Lisboa
-
-&nbsp;
-
-<a href="http://www.agrofloresta.net/">http://www.agrofloresta.net/</a> - um pouco sobre o processo de agrofloresta
-
-&nbsp;
-
--Feiras de ôrganicos:
-
-&nbsp;
-
-<a href="http://www.feirasorganicas.com.br/">http://www.feirasorganicas.com.br/</a> - feiras cariocas de orgânicos
-
-&nbsp;
-
-<a href="http://www.idec.org.br/feirasorganicas">http://www.idec.org.br/feirasorganicas</a> - mapa de feiras pelo Brasil
-
-&nbsp;
-
-<a href="http://seedfreedom.in/">http://seedfreedom.in/</a> - Movimento global liderado pela Dra. Vandana Shiva
 
 &nbsp;
 
 &nbsp;
 
-<strong>- Filmes:</strong>
-
-<a href="http://www.youtube.com/watch?v=8RVAgD44AGg&amp;feature=player_embedded">http://www.youtube.com/watch?v=8RVAgD44AGg&amp;feature=player_embedded</a> – O Veneno Esta na Mesa
+<strong>  Ecopedagogia por ai:</strong>
 
 &nbsp;
 
-<a href="https://vimeo.com/22637968">https://vimeo.com/22637968</a> - Passado, semente, futuro
+-Referências:
+
+Instituto Paulo Freire: <a href="http://www.paulofreire.org.br/asp/Index.asp">http://www.paulofreire.org.br/asp/Index.asp</a>
 
 &nbsp;
 
-<a href="http://youtu.be/HJJK85ciTfc">http://youtu.be/HJJK85ciTfc</a> - Semente é diamante
+Educate 2020 - Como será a educação em 2020?: <a href="http://educate2020.com/">http://educate2020.com/</a>
+
+&nbsp;
+
+A horta pedagógica – semeando sustentabilidade em escolas do litoral norte de SP: <a href="http://www.ahortapedagogica.org.br/praticando.html">http://www.ahortapedagogica.org.br/praticando.html</a>
+
+&nbsp;
+
+Blog ecopedagogia com várias dicas e atualizações: <a href="http://www.bela-ecopedagogia.blogspot.com.br/">http://www.bela-ecopedagogia.blogspot.com.br/</a>
+
+&nbsp;
+
+Permaculture Design Courses (Referências de cursos e leitura gratuita na internet):<a href="http://www.permaculture-design-courses.com/2012/03/international-sunflower-guerrilla.html"> http://www.permaculture-design-courses.com/2012/03/international-sunflower-guerrilla.html</a>
+
+&nbsp;
+
+Projeto Âncora - Aprendizado de forma diferente da tradicional em Cotia-SP : <a href="http://www.projetoancora.org.br/index.php" target="_blank">http://www.projetoancora.org.br/index.php</a>
 
 &nbsp;
 
 &nbsp;
 
-<strong>- Outros Recursos/ movimentos:</strong>
-
-Grupo <a href="http://www.facebook.com/groups/170958626306460/">hortelões urbanos </a>no facebook
+-Aonde da para se integrar/ participar:
 
 &nbsp;
 
-<a href="http://hortadascorujas.wordpress.com/">http://hortadascorujas.wordpress.com/</a> - sobre hortas comunitárias em SP
+Celulas de transformação: <a href="http://moverjuntos.blogspot.com.br/">http://moverjuntos.blogspot.com.br/</a>
 
 &nbsp;
 
-Pic nic de trocas de sementes e mudas da estação 9a cada três meses em São Paulo - <a href="http://picnicsementesemudas.wordpress.com/">http://picnicsementesemudas.wordpress.com/</a>
+P2PU – peer to peer university – aprender em conjunto pode ser mais efetivo do que a sala de aula : <a href="https://p2pu.org/en/">https://p2pu.org/en/</a>
+
+&nbsp;
+
+Sinal (Sincronicidades; inovação e alegria), um especial espaço de terra no RJ que tem um projeto de educação ambiental o Sinal das Crianças: <a href="http://redeh.org.br/hotsites/sinaldovale/">http://redeh.org.br/hotsites/sinaldovale/</a>
 
 &nbsp;
 
 &nbsp;
 
-<strong>DOCUMENTO COLABORATIVO:</strong>   <a href="http://titanpad.com/Sub0ou3wJG">http://titanpad.com/Sub0ou3wJG</a>
+- Vídeos:
+
+&nbsp;
+
+Tedx aonde se fala da cultura biofóbica . Também conhecido como o TEDx Buenos Aires com Helena Maltez: <a href="http://youtu.be/he2617T_s7U">http://youtu.be/he2617T_s7U</a>
+
+&nbsp;
+
+Educacion Prohibida – documentário sobre diferentes experiências em educação não tradicional já em andamento:  <a href="http://www.educacionprohibida.com/">http://www.educacionprohibida.com/</a>
+
+&nbsp;
+
+Video com matéria do projeto âncora, que tem como base a Escola da Ponte de Portugal, metodologia bem bacana voltada para autonomia: <a href="http://youtu.be/gEJFopvMKhs">http://youtu.be/gEJFopvMKhs</a>
+
+&nbsp;
+
+Não sei fazer isto, mas sei fazer aquilo – link da pagina do documentário que comenta alternativas para crianças com dificuldades de aprendizado diagnosticadas: <a href=" http://www.hbo.com/documentaries/i-cant-do-this-but-i-can-do-that-a-film-for-families-about-learning-differences/synopsis.html">http://www.hbo.com/documentaries/i-cant-do-this-but-i-can-do-that-a-film-for-families-about-learning-differences/synopsis.html</a>
+
+&nbsp;
+
+&nbsp;
+
+-DOCUMENTO COLABORATIVO para novos links e ideas deste tema:
+
+<a href="http://titanpad.com/RoSIVSDyyT">http://titanpad.com/RoSIVSDyyT</a>
